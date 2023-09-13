@@ -1,5 +1,5 @@
 ### OLA! MUNDO ✌️
 *ME AVENTURANDO NO MUNDO DA PROGRAMAÇÃO!*
 <img src="https://www.animatedimages.org/data/media/562/animated-line-image-0184.gif" width="1920" />
-<img src="[image](https://github.com/alefcarmo/alefcarmo/assets/144830552/d1de9452-4423-42bb-9907-a1663bc2cda0)
-
+<a href="https://www.animatedimages.org/cat-pikachu-1432.htm"><img src="https://www.animatedimages.org/data/media/1432/animated-pikachu-image-0018.gif" border="0" alt="animated-pikachu-image-0018" /></a>
+<img src="https://www.animatedimages.org/data/media/562/animated-line-image-0184.gif" width="1920" />
